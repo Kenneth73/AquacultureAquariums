@@ -11,7 +11,7 @@ I have a cousin called the _destroyer of the family_ and his name is **Daniel Co
 * PROGRAMMING
 * CODING
 * PULLING PRANKS AT OTHERS
- - pop pop trick
+ * pop pop trick
 
 
 
