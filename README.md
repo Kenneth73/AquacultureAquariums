@@ -2,7 +2,7 @@
 <img src="http://wallpapercave.com/wp/yxedRFW.jpg" width="400">
 
 My Name is Kenneth Crasto and like electronics and computer. I have a very naughthy cousin- **NATHAN COSTA**. 
-I have a cousin called the _destroyer of the family_ and his name is **Daniel Costa**. One of my cousins, Luke lives in U.K. He comes to visit me every 2 years. I have a lot of fun with them playing **SHADOW FIGHT 2, HUNGRY SHARK EVOLUTOIN AND MINI MILITIA**
+I have a cousin called the _destroyer of the family_ and his name is **Daniel Costa**. 
 
 ### My Hobbies are:
 
