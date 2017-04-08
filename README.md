@@ -10,9 +10,10 @@ I have a cousin called the _destroyer of the family_ and his name is **Daniel Co
 1. ROBOTICS
 1. PROGRAMMING
 1. CODING
-1. PULLING PRANKS AT OTHERS
+1. PULLING PRANKS AT OTHERs
 
- 
+-Have a problem in which your microsoft device dosen't shut down?
+ sol= 
 
 
  
