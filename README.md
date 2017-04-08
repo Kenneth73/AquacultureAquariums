@@ -12,9 +12,9 @@ I have a cousin called the _destroyer of the family_ and his name is **Daniel Co
 1. CODING
 1. PULLING PRANKS AT OTHERs
 
--Have a problem in which your microsoft device dosen't shut down?
+###-Have a problem in which your microsoft device dosen't shut down?
  
- -sol= press start and search 'cmd'open it and type shut down.
+### -sol= press start and search 'cmd'open it and type shut down.
 
 
  
