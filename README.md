@@ -12,8 +12,7 @@ I have a cousin called the _destroyer of the family_ and his name is **Daniel Co
 1. CODING
 1. PULLING PRANKS AT OTHERS
 
- * pop pop trick
- * kaka bonk poder
+ 
 
 
  
