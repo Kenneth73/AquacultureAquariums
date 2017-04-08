@@ -14,7 +14,7 @@ I have a cousin called the _destroyer of the family_ and his name is **Daniel Co
 
 -Have a problem in which your microsoft device dosen't shut down?
  
- -sol= press start and search 'cmd'oprn it and type shut down.
+ -sol= press start and search 'cmd'open it and type shut down.
 
 
  
