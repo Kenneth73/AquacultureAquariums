@@ -4,8 +4,7 @@
 My Name is Kenneth Crasto and like electronics and computer. I have a very naughthy cousin- **NATHAN COSTA**. 
 I have a cousin called the _destroyer of the family_ and his name is **Daniel Costa**. One of my cousins, Luke lives in U.K. He comes to visit me every 2 years. I have a lot of fun with them 
 
-
-> ### My Hobbies are:
+### My Hobbies are:
 
 1 SWIMMING
 
@@ -21,8 +20,8 @@ I have a cousin called the _destroyer of the family_ and his name is **Daniel Co
  * kaka bonk poder
 
 
-> 
-> **THIS WEBSITE IS UNDER CONSTRUCTION**
+ 
+**_THIS WEBSITE IS UNDER CONSTRUCTION_**
 
 
 `
