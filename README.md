@@ -1,9 +1,9 @@
 ## Kenneth Crasto  
 <img src="http://wallpapercave.com/wp/yxedRFW.jpg" width="400">
 
-##FAVOURITE : DESIGNING WEB PAGES
+## FAVOURITE : DESIGNING WEB PAGES
 
-##HOBBIES
+## HOBBIES
 
 1. SWIMMING
 1. ROBOTICS
