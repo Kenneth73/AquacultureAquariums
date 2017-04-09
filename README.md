@@ -1,18 +1,15 @@
-## Kenneth Crasto  
-<img src="http://wallpapercave.com/wp/yxedRFW.jpg" width="400">
+## Nathan Costa 
 
-## FAVOURITE : DESIGNING WEB PAGES
+
+## FAVOURITE : Crying
 
 ## HOBBIES
 
-1. SWIMMING
-1. ROBOTICS
-1. PROGRAMMING
-1. CODING
-1. PULLING PRANKS AT OTHERS
+1. SAYING EAT SHIT
+1. SAYING U IDIOT
 
  
-**_THIS WEBSITE IS UNDER CONSTRUCTION_**
+**_THIS WEBSITE IS FULLY DEVELOPED_**
 
 
 `
